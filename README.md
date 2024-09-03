@@ -1,1 +1,0 @@
-# talyasayah.github.io
